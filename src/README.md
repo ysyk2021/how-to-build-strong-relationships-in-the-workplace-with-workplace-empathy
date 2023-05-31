@@ -10,4 +10,4 @@ Whether you are an employee looking to improve your communication skills or a ma
 
 In the following chapters, we will dive deeper into the importance of workplace empathy and provide actionable steps for building strong relationships in the workplace.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
