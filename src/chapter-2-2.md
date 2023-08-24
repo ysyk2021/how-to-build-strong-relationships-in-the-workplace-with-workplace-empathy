@@ -1,5 +1,3 @@
-The Impact of Workplace Empathy on Relationships and Business Success
-=================================================================================================================
 
 Workplace empathy is essential for building strong relationships, promoting teamwork, and creating a positive work environment. In this chapter, we will discuss the impact of workplace empathy on relationships and business success.
 

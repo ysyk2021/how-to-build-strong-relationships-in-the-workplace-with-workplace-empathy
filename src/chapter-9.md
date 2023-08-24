@@ -1,5 +1,3 @@
-Chapter 9: Applying Empathy Skills to Customer Service
-======================================================
 
 In addition to building strong relationships with coworkers, workplace empathy can also be applied to customer service. In this chapter, we will explore the benefits of applying empathy skills to customer service, strategies for using empathy to improve customer service, and resolving customer complaints with empathy.
 
@@ -44,5 +42,4 @@ Conclusion
 ----------
 
 Applying empathy skills to customer service is essential for creating a positive and supportive experience for both customers and employees. By listening actively, taking the perspective of the customer, showing genuine interest, validating the customer's feelings, offering support and assistance, acknowledging the customer's issue, apologizing for any inconvenience caused, offering a solution, and following up with the customer, organizations can use empathy to improve customer service and build stronger relationships with customers.
-
 

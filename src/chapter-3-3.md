@@ -1,5 +1,3 @@
-Using Active Listening and Communication Techniques
-================================================================================================================
 
 Building empathetic relationships with coworkers is essential for creating a positive workplace culture. In this chapter, we will explore how using active listening and communication techniques can contribute to building empathetic relationships with coworkers.
 

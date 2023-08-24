@@ -1,5 +1,3 @@
-Chapter 6: Addressing Conflict with Empathy
-===========================================
 
 The Impact of Conflict on Workplace Relationships
 -------------------------------------------------

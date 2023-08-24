@@ -1,5 +1,3 @@
-Chapter 4: Encouraging Empathy in Leadership
-============================================
 
 Empathy plays a crucial role in effective leadership. Leaders who prioritize empathy are more likely to build strong relationships with their team members, create a positive and supportive work environment, and achieve success. In this chapter, we will explore the role of empathy in effective leadership, strategies for encouraging empathy in leadership, and leading with emotional intelligence.
 

@@ -1,5 +1,3 @@
-Strategies for Developing Workplace Empathy
-=======================================================================================
 
 Developing workplace empathy is essential for building strong relationships, promoting teamwork, and creating a positive work environment. In this chapter, we will discuss strategies for developing workplace empathy.
 

@@ -1,5 +1,3 @@
-Analyzing Team Performance and Engagement Data
-==============================================================================================
 
 Analyzing team performance and engagement data is a powerful method for measuring workplace empathy success. In this chapter, we will explore how analyzing team performance and engagement data can contribute to measuring workplace empathy success.
 

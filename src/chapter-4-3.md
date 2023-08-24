@@ -1,5 +1,3 @@
-Leading with Emotional Intelligence
-=================================================================================
 
 Encouraging empathy in leadership is essential for building strong relationships and achieving success in the workplace. In this chapter, we will explore how leaders can lead with emotional intelligence and encourage empathy in the workplace.
 

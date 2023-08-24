@@ -1,5 +1,3 @@
-Encouraging Diversity and Inclusivity
-================================================================================
 
 Fostering a culture of empathy is essential for building and maintaining strong workplace relationships. In this chapter, we will explore how encouraging diversity and inclusivity can contribute to fostering a culture of empathy in the workplace.
 

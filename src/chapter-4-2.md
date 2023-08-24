@@ -1,5 +1,3 @@
-Strategies for Encouraging Empathy in Leadership
-==============================================================================================
 
 Effective leadership requires empathy. When leaders are able to understand and connect with their employees on a personal level, they can build stronger relationships and foster a more positive workplace environment. In this chapter, we will discuss strategies for encouraging empathy in leadership.
 

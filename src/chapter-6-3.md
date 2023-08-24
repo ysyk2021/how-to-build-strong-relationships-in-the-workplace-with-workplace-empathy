@@ -1,5 +1,3 @@
-Encouraging Open Communication and Understanding
-=============================================================================================
 
 Conflict is inevitable in any workplace, but it's how we address that conflict that can make all the difference. Approaching conflict with empathy can help build stronger relationships and lead to more positive outcomes for everyone involved. In this chapter, we will discuss how to address conflict with empathy by encouraging open communication and understanding.
 

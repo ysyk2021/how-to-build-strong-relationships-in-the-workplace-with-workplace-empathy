@@ -1,5 +1,3 @@
-Adjusting Workplace Empathy Programs Based on Feedback
-======================================================================================================
 
 Measuring workplace empathy success is crucial for determining the effectiveness of workplace empathy programs and making necessary adjustments. In this chapter, we will explore how to measure workplace empathy success and adjust workplace empathy programs based on feedback.
 

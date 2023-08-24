@@ -1,5 +1,3 @@
-The Benefits of Applying Empathy Skills to Customer Service
-===================================================================================================================
 
 Applying empathy skills to customer service can have numerous benefits for both the customer and the organization. In this chapter, we will explore the importance of applying empathy skills to customer service and the benefits of doing so.
 

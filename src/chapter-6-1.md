@@ -1,5 +1,3 @@
-The Impact of Conflict on Workplace Relationships
-==============================================================================================
 
 Addressing conflict with empathy is essential for building and maintaining strong workplace relationships. In this chapter, we will explore the impact of conflict on workplace relationships and strategies for addressing conflict with empathy.
 

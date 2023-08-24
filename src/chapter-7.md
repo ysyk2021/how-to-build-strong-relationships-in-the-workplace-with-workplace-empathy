@@ -1,5 +1,3 @@
-Chapter 7: Fostering a Culture of Empathy
-=========================================
 
 The Benefits of Fostering a Culture of Empathy in the Workplace
 ---------------------------------------------------------------

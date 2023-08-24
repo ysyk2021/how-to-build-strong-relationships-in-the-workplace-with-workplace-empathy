@@ -1,5 +1,3 @@
-Chapter 5: Practicing Self-Empathy
-==================================
 
 Empathy is not only important in building relationships with others but also in building a healthy relationship with oneself. Practicing self-empathy can help individuals better understand and manage their own emotions, leading to greater well-being and success in the workplace. In this chapter, we will explore the importance of practicing self-empathy in the workplace, techniques for practicing self-empathy, and managing stress and burnout.
 

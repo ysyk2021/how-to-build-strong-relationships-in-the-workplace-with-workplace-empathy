@@ -1,5 +1,3 @@
-Strategies for Addressing Conflict with Empathy
-============================================================================================
 
 Addressing conflict with empathy is essential for building and maintaining strong workplace relationships. In this chapter, we will explore strategies for addressing conflict with empathy.
 

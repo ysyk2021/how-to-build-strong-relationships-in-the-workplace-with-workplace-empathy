@@ -1,5 +1,3 @@
-Managing Stress and Burnout
-===============================================================
 
 Practicing self-empathy is essential for maintaining strong workplace relationships. In this chapter, we will explore how managing stress and burnout can contribute to practicing self-empathy.
 

@@ -1,5 +1,3 @@
-The Importance of Building Empathetic Relationships with Coworkers
-===============================================================================================================================
 
 Building empathetic relationships with coworkers is essential for creating a positive work environment and achieving business success. In this chapter, we will discuss the importance of building empathetic relationships with coworkers.
 

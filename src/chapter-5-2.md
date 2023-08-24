@@ -1,5 +1,3 @@
-Techniques for Practicing Self-Empathy
-==========================================================================
 
 Practicing self-empathy is essential for maintaining strong workplace relationships. In this chapter, we will explore techniques for practicing self-empathy.
 

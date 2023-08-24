@@ -1,5 +1,3 @@
-Chapter 3: Building Empathetic Relationships with Coworkers
-===========================================================
 
 The Importance of Building Empathetic Relationships with Coworkers
 ------------------------------------------------------------------

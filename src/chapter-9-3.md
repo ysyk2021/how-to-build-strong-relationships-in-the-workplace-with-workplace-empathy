@@ -1,5 +1,3 @@
-Resolving Customer Complaints with Empathy
-==================================================================================================
 
 Resolving customer complaints with empathy is crucial for creating a positive and satisfying experience for the customer. In this chapter, we will explore strategies for resolving customer complaints with empathy.
 

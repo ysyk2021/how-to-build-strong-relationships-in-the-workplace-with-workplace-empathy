@@ -1,5 +1,3 @@
-Strategies for Using Empathy to Improve Customer Service
-================================================================================================================
 
 Using empathy to improve customer service is essential for creating a positive and satisfying experience for the customer. In this chapter, we will explore strategies for using empathy to improve customer service.
 

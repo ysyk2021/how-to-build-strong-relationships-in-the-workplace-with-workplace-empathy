@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Empathy
-==========================================
 
 Definition of Workplace Empathy
 -------------------------------

@@ -1,5 +1,3 @@
-Strategies for Promoting Empathy in the Workplace Culture
-====================================================================================================
 
 Fostering a culture of empathy is essential for building and maintaining strong workplace relationships. In this chapter, we will explore strategies for promoting empathy in the workplace culture.
 

@@ -1,5 +1,3 @@
-Chapter 8: Measuring Workplace Empathy Success
-==============================================
 
 Building workplace empathy is essential for creating a positive and supportive work environment. However, it's important to measure the success of workplace empathy initiatives to ensure they are having the desired effect. In this chapter, we will explore methods for measuring workplace empathy success, analyzing team performance and engagement data, and adjusting workplace empathy programs based on feedback.
 

@@ -1,5 +1,3 @@
-The Role of Empathy in Effective Leadership
-=========================================================================================
 
 Empathy plays a crucial role in effective leadership and building strong relationships in the workplace. In this chapter, we will explore the importance of encouraging empathy in leadership and the role of empathy in effective leadership.
 
