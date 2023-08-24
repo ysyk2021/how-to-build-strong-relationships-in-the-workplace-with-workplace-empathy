@@ -1,5 +1,4 @@
 
-
 In today's fast-paced and competitive work environment, building strong relationships in the workplace is more important than ever. Workplace empathy is a key component of building these relationships and achieving success. In this book, we have explored strategies for developing workplace empathy and building strong relationships with colleagues, managers, and employees.
 
 Summary of Key Points
