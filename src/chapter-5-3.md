@@ -1,5 +1,4 @@
-Chapter: Managing Stress and Burnout
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced work environment, stress and burnout have become prevalent issues that can negatively impact relationships and undermine productivity. This chapter explores effective strategies for managing stress and burnout in the workplace through the lens of workplace empathy.
 

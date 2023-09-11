@@ -1,5 +1,4 @@
-Chapter: Definition of Workplace Empathy
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace empathy forms the cornerstone of building strong relationships in the workplace. This chapter provides a comprehensive definition of workplace empathy, explores its significance, and highlights its role in fostering positive relationships and a supportive work environment.
 

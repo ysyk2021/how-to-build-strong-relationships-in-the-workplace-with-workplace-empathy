@@ -1,5 +1,4 @@
-Chapter: Strategies for Building Empathetic Relationships
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building empathetic relationships in the workplace is crucial for fostering a supportive and inclusive environment. This chapter explores effective strategies that individuals can implement to cultivate empathy and strengthen their relationships with colleagues.
 

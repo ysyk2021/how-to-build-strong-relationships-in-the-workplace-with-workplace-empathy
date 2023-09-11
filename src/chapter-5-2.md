@@ -1,5 +1,4 @@
-Chapter: Techniques for Practicing Self-Empathy
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-empathy is a fundamental aspect of building strong relationships in the workplace. It involves understanding and compassionately acknowledging our own thoughts, feelings, and needs. This chapter explores effective techniques for practicing self-empathy, which can enhance personal well-being and improve interactions with others.
 

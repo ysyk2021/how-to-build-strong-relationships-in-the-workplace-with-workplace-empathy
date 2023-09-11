@@ -1,5 +1,4 @@
-Chapter: Strategies for Promoting Empathy in the Workplace Culture
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Promoting empathy in the workplace culture is key to building strong relationships and fostering a supportive and inclusive environment. This chapter outlines effective strategies that organizations can employ to cultivate empathy throughout their workforce.
 

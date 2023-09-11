@@ -1,5 +1,4 @@
-Chapter: Encouraging Open Communication and Understanding
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Open communication and understanding are crucial for building strong relationships in the workplace with workplace empathy. This chapter explores the importance of fostering open communication, promoting understanding, and provides practical strategies for encouraging these essential elements within the workplace.
 

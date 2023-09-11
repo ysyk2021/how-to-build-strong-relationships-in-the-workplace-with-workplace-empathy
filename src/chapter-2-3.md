@@ -1,5 +1,4 @@
-Chapter: Strategies for Developing Workplace Empathy
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing workplace empathy is a crucial step towards building strong relationships and fostering a supportive work environment. This chapter explores effective strategies for cultivating and enhancing workplace empathy among colleagues and teams.
 

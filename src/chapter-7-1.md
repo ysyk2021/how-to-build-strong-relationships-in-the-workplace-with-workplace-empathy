@@ -1,5 +1,4 @@
-Chapter: The Benefits of Fostering a Culture of Empathy in the Workplace
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A culture of empathy goes beyond individual acts of kindness---it permeates an entire organization, shaping its values, practices, and relationships. In this chapter, we explore the numerous benefits that arise from fostering a culture of empathy in the workplace.
 

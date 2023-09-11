@@ -1,5 +1,4 @@
-Chapter: The Impact of Workplace Empathy on Relationships and Business Success
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace empathy plays a pivotal role in fostering strong relationships and driving business success. This chapter explores the profound impact of workplace empathy on both interpersonal connections and overall organizational outcomes.
 
